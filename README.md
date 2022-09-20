@@ -1,1 +1,2 @@
 # rsschool-cv
+hELLO DO YOU HAVE KNOWLEGE
